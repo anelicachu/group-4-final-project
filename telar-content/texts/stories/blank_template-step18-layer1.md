@@ -1,0 +1,5 @@
+---
+title: "Learn more"
+---
+
+Focusing on the Nahua text, it doesn't take much for us to see that they span the entire column. The Nahua-to-English translations reveal that the Nahua writing is extremely detailed in it's accounts of history and culture. As mentioned before, the Nahua scholars produced the majority of the content in the manuscript. However, although they had been successfully converted to adopt the Christian religion and Hispanic values, their writing is used as a storytelling device that reflects respect for their culture. For example, as a direct comparison to the Spanish text in Book 12, we see that the Nahua describe the event of a war in much greater detail than its counterpart. Rather than dry accounts, they describe it expressively to anticipate a future Nahua audience. Here, writing is used not only to document culture, but also to teach it and continue to breathe life into it.
