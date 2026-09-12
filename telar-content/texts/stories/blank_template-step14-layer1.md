@@ -1,0 +1,5 @@
+---
+title: "Learn more"
+---
+
+The prologues were specifically written by Sahagún and only written in Spanish, with no Nahuatl translation. Given that the prologues are written in one language, it might lead the reader to believe that this language controls the narrative, but it undermines the collaborative effort on behalf of the Nahua that carried the bulk of the content that went into the project (Terraciano, 2019, p. 13). They were also written to fill the reader in on current events and the relevance of the specific section to the bigger objective, building tension between Spanish and Nahuatl texts and highlighting their differences. Just like in this specific close-up, where we can see an example of Sahagún's "defensive remarks about the nature of the work" (Terraciano, 2019, p. 8). He makes the comparison of a doctor needing to understand the nature of an illness to issue the best remedy to his end goal of documenting indigenous culture to properly uproot its idolatry, amongst many other things they considered sins in indigenous culture.
