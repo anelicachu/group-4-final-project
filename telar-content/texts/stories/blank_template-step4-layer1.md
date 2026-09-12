@@ -1,0 +1,5 @@
+---
+title: "Learn more"
+---
+
+There have been potential guesses of what a quipu could have represented, like mentioned before, it could have been deaths, births, crops, etc. As the Incas records were mainly passed down through speech and quipus, it made it difficult to pass down information through many generations and still hold the original meaning to most. The method of recordkeeping did not survive long enough for there to have been a quipucamayoc that could have translated the meaning into alphabetic writing. The fact that the quipu is a lost language is not such a bad thing, this means that any of the important information they were storing was kept private enough and the quipucamayocs were fulfilling their role as record keepers and accountants. The knowledge of what they truly represented lied with the quipucamayocs and lived/died in their memories.

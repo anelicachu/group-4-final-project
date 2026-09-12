@@ -1,0 +1,5 @@
+---
+title: "Learn more"
+---
+
+Finally, the last component of the manuscript that the text actually works around is the Nahua paintings. They are given equal weight to the text and share a column with the Spanish text because the Spanish text is so short. They combine European and Mexica pictorial traditions, which themselves are considered writing due to their conventions. The paintings themselves are transcultural products, some images reflecting Nahua culture while others had obvious European influence, notable through certain colors or pictorial iconography displayed. As stated by Diana M. Kerpel in her chapter "Powerful Words and Eloquent Images" in *The Florentine Codex: An Encyclopedia of the Nahua World in Sixteenth-Century Mexico*: "The painters were preserving aspects of their own pictographic traditions in spite of the strong European, Christian influences on their work." (Kerpel,  p. 161). Here, the paintings themselves work with the Nahua text to tell a bigger picture that words alone can't.

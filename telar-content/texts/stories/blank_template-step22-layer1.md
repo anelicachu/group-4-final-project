@@ -1,0 +1,5 @@
+---
+title: "Learn more"
+---
+
+Just by flipping through the pages, one can make the observation that the Spanish translations are much shorter than the Nahua text. The right column being reserved for the Nahua text, the left is shared between the Nahua paintings and the Spanish text. This is because the spanish text acts more as a secondary text that, throughout the book, engages with the Nahua text, translates it, summarizes it, and sometimes even ignores it completely (Terraciano, 2019, p. 12). Sahagún's primary interest being the preservation of the Nahua culture through writing and documenting, the anticipated audience was mainly for Spanish authorities. In these translations, they provide literal translations and stale "factual" accounts with no call to action to continue to further explore Nahua culture. For example, where a description of an object, event, or person would be useful, Sahagún instead implores the reader to look for it in the world themselves. The Spanish writing thus, starts to juxtapose the detailed Nahua accounts and build the tension described before; the writing here is used as a way to undermine Nahua culture.
