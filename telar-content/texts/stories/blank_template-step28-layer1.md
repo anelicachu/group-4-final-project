@@ -2,21 +2,4 @@
 title: "Learn more"
 ---
 
-Emmanuel Velayos makes a good analysis of this page. 
-
-While Rodriguez says that neither writing or speaking are as important as painting words, it does not mean a hierarchical order exists. Velayos says "Instead, he claims that the
-gestures accompanying oral communication are the original “painting” of words and thoughts" (142) 
-
-Gestures then would be the first graphic representations, even before writing, of painting words. That is why he refers to gestures as painting in the air. 
-
-He believed that printed writing must represent the way these original airborn gestures behaved. 
-
-This is essential into understanding Rodriguez' dynamics between writing and speech, as Velayos put it "Hence, the syntax and sequence of writing could not be dictated by grammar rules or the conventions of linear writing. Instead, writing needed to use the whole space of the page to convey and visualize the dynamic, nonlinear sequence of gestures that accompanied the pronunciation of words and thoughts"
-
-
-  
-  
-  
-  
-  
-> Velayos, E. (2019). Painting Words, Drawing Republics: Embodied Arts and New Beginnings in Simón Rodríguez. Hispanic Review, 87(2), 133–158. https://doi.org/10.1353/hir.2019.0008
+Finally, the last component of the manuscript that the text actually works around is the Nahua paintings. They are given equal weight to the text and share a column with the Spanish text because the Spanish text is so short. They combine European and Mexica pictorial traditions, which themselves are considered writing due to their conventions. The paintings themselves are transcultural products, some images reflecting Nahua culture while others had obvious European influence, notable through certain colors or pictorial iconography displayed (. As stated by Diana M. Kerpel in her chapter "Powerful Words and Eloquent Images" in *The Florentine Codex: An Encyclopedia of the Nahua World in Sixteenth-Century Mexico*: "The painters were preserving aspects of their own pictographic traditions in spite of the strong European, Christian influences on their work." (Kerpel,  p. 161). Here, the paintings themselves work with the Nahua text to tell a bigger picture that words alone can't.
